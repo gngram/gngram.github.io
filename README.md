@@ -1,1 +1,0 @@
-# gngram.github.io
